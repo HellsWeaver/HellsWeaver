@@ -5,3 +5,4 @@
 
 https://user-images.githubusercontent.com/130356209/230881125-773b9ad8-633c-48ea-93a9-20b864b63020.mov
 
+Рулетка с легендаркой: https://ruletka-for-mammadli.onrender.com
