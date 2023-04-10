@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F738C9&width=435&lines=Hello+slaves+of+technology;I+am+a+cracker+of+Mammadli;Help+psychologically)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=88AFD3&width=435&lines=Hello+slaves+of+technology;I+am+a+cracker+of+Mammadli;Help+psychologically)](https://git.io/typing-svg)
